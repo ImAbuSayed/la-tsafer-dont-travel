@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي لا تسافر، ابقَ هنا
+> قلبي ينادي في صمت الدجى
+> نار الشوق تحرق كل المسافات
+> تعال إليّ، يا نور الحياة
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
